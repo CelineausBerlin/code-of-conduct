@@ -52,7 +52,7 @@ Wenn ein Community-Mitglied sich auf inakzeptable Art und Weise verhält, steht 
 Wenn du inakzeptables Verhalten erlebst
 ----------------------------------------------------------
 
-Wenn du von inakzeptablem Verhalten betroffen bist, dieses beobachtest oder andere Anliegen hast, teile dies bitte so bald wie möglich einer für die Veranstaltung verantwortlichen Person mit. Du findest eine Liste der Kontaktpersonen je unterstützender Initiative dieses Verhaltenskodexes ganz unten auf der Seite. Zusätzlich stehen die Veranstaltenden zur Verfügung, um Community-Mitgliedern dabei zu helfen, mit den lokalen Ordnungs- und Strafverfolgungskräften in Kontakt zu treten als auch ihr Sicherheitsgefühl anderweitig wieder herzustellen.
+Wenn du von inakzeptablem Verhalten betroffen bist, dieses beobachtest oder andere Anliegen hast, teile dies bitte so bald wie möglich einer für die Veranstaltung verantwortlichen Person mit. Du findest eine Liste der Kontaktpersonen je unterstützender Initiative dieses Verhaltenskodexes ganz unten auf der Seite. Zusätzlich stehen die Veranstaltenden zur Verfügung, um Community-Mitgliedern dabei zu helfen, mit den lokalen Ordnungs- und Strafverfolgungsbehörden in Kontakt zu treten als auch ihr Sicherheitsgefühl anderweitig wieder herzustellen.
 Im Rahmen von Veranstaltungen mit persönlicher physischer Anwesenheit stellen die Veranstaltenden auf Wunsch der betroffenen Person auch Begleitung zur Verfügung.
 
 
